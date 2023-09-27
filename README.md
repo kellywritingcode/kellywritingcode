@@ -1,4 +1,4 @@
-what is this suppose to mean. what is life suppose to mean anyway. 
+noob snoop
 
 <!---
 kellywritingcode/kellywritingcode is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
